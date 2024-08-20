@@ -1,16 +1,15 @@
-## Hi there 👋
+## este é meu perfil🇧🇷🏁
 
-<!--
-**lbeat/lbeat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- estou estudado a [alura](https://www.alura.com.br)
+- 
+- no 1ano ensino médio
+  
+voçe pode entra em contato comigo pelo 📭
 
-Here are some ideas to get you started:
+leonardo.lorenzett.ramos@escola.pr.gov.br
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/UrFwpgY03OcAAAAM/madara-infinity-tsuyami.gif)
+
+
+
+![](https://media.tenor.com/bIe9VeYRQCkAAAAM/ya.gif)
